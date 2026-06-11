@@ -8,4 +8,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀ 
 $\color{#F8C3AA}{\textsf{c+h}}$⠀ $\color{#AF7C89}{\textsf{hvy}}$⠀ $\color{#8F5F84}{\textsf{enc}}$⠀ $\color{#5A2D7D}{\textsf{♡}}$ ⠀ $\color{#63347E}{\textsf{pup}}$⠀ $\color{#4C1F7A}{\textsf{bun}}$
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀ㅤ <img src="https://i.postimg.cc/h4xGfYRR/Untitled620-20260611220412.png" width="160" align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤ⠀⠀⠀ㅤ  [<img src="https://i.postimg.cc/h4xGfYRR/Untitled620-20260611220412.png" width="160" align="center">](https://rentry.co/vinelove)
